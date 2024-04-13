@@ -1,4 +1,4 @@
-- 👋 Hi, My name is Milagros Saulo.
+- 👋 Hi, my name is Milagros Saulo.
 - I'm a freelance English <> Latam Spanish translator and localization specialist from Argentina.
 - I've been working in the field for about 2 years. I've mainly focused on medical translation and the localization of video games.
 - My experience has allowed me to train and acquire valuable skills such as researching concepts and terminology in-depth, organization, and creativity.
